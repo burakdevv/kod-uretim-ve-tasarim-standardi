@@ -1,0 +1,1 @@
+# kod-uretim-ve-tasarim-standardi
